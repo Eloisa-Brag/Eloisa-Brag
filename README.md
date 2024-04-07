@@ -1,0 +1,7 @@
+- 👋 Olá, sou @Eloisa-Brag
+- 👀 Tenho interesse em Mídias digitais, design e adoro o Figma!
+- 🌱 Atualmente estou cursando Técnico em Informática.
+- 💞️ Estou buscando colaborar em Web Design.
+- 📫 Você pode me encontrar em @eloisa_braga_infor ou pelo email eloisafarias1811@gmail.com.
+- 😄 Pronomes: Ela/Dela
+- ⚡ Curiosidade: Adoro filmes e séries.
